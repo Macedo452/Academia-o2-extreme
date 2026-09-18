@@ -27,7 +27,7 @@ Website institucional moderno, dinâmico e responsivo da **O2 Extreme Academia**
 
 - **Endereço:** Rua Diogo da Costa, 308 - Monte Santo, Campina Grande - PB
 - **WhatsApp:** (83) 98185-5100
-- **Redes Sociais:** [@o2extremecg](https://facebook.com/o2extremecg)
+- **Redes Sociais:** [@o2extremecg no Facebook](https://facebook.com/o2extremecg) | [@o2extremecg no Instagram](https://www.instagram.com/o2extremecg)
 
 ---
 *Desenvolvido com foco em alta conversão e experiência do usuário.*
